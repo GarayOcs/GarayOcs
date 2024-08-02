@@ -1,3 +1,5 @@
+![Ingrid Santana QA Engineer - Human Resources Banner](https://github.com/GarayOcs/GarayOcs/blob/main/White%20Clean%20Minimalist%20Corporate%20Personal%20Profile%20LinkedIn%20Banner.png?raw=true)
+
 ## Hi there 👋
 
 <!--
