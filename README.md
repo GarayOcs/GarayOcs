@@ -1,4 +1,3 @@
-https://github.com/user-attachments/assets/9b1737c3-0463-494c-bbc0-ed2f8ec845ed
 
 <div id="header" align="center">
   <h1>
