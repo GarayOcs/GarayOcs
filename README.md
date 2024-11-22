@@ -1,4 +1,4 @@
-![Captura de pantalla 2024-11-19 085054](https://github.com/user-attachments/assets/1394dfbf-c915-4cc8-863a-dd2610e694d6)
+
 
 <div id="header" align="center">
   <h1>
