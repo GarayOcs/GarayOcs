@@ -1,5 +1,4 @@
-
-
+![White Clean Minimalist Corporate Personal Profile LinkedIn Banner](https://github.com/user-attachments/assets/04c56ccc-8076-472d-b4fb-1671e8085159)
 <div id="header" align="center">
   <h1>
     ¡Hola! Soy Ingrid Santana, bienvenida a mi perfil
